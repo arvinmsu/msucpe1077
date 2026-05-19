@@ -1,0 +1,74 @@
+Subterrania by Luis Joaquin M. Katigbak
+“Welcome to Subterrania,” Kaye says as I step into her room. My eyes take a moment to adjust to the lack of light. I know that outside, a noon sun is in full blaze, that it’s a typical Philippine summer, but in here, there is almost no way of telling what the time or season is. Kaye is sitting cross-legged on the carpeted floor, in front of the television. I drop my backpack and plunk myself down beside her. She glances at me, and then she turns her attention back to the TV.
+I look around the room. Sketch pads, dog-eared books, coffee-stained notebooks, comics, and video cassettes are scattered everywhere. There’s a bed on one side, a small refrigerator right next to it. There’s a computer atop a sturdy black desk—its screen saver is active, just three words flowing across a black field: “you are here.” In a corner, an air-conditioner hums tunelessly to itself. What little light there is comes through slivers and cracks: a broken segment of the window blinds, a lampshade hand-painted in dark swirling patterns. I have this strange sense that we’re sitting, not in a room, but inside a sad giant’s clasped hands.
+She’s watching a Japanese animated movie on the VCR. It seems to be about a young cyborg girl with the prerequisite oversized eyes beating up a bunch of massive, shark-faced villains. I don’t ask Kaye what it is. She’s so engrossed that she might not answer, and then the question would hang in the air, embarrassed by its uselessness, by its very existence.
+Minutes pass. “This is great,” she says, as if suddenly remembering that I’m there. She points at the screen. “Watch how she swings around, and then leaps into the air, how she sets up the death blow.” The cartoon figures on the screen dance a violent, slo-mo ballet. The cyborg girl rips through her monstrous opponent. “That guy reminds me of you,” Kaye says, and at first I think she means the dead dismembered monster, and then I realize that she’s talking about another character, a bespectacled, lanky guy in a trenchcoat—who is, as far as I can tell, friends with the cyborg girl. I’m glad. I guess that means he’ll live. We watch the rest of the movie in silence.
+As the screen turns blank, Kaye sighs, then stretches, as if waking up. She looks at me.
+“Hello there,” I say.
+She gives me a smile. “Hey,” she replies. “So what brings you here?”
+“Nothing much,” I say. “How are you?”
+“Good,” she says. “Pretty good...”
+“I can’t really stay,” I tell her. “I just brought that CD you were asking for.”
+“Hey, great,” she says, brightening up a little. I reach into my backpack, fish around until I can feel the flat square case, and hand her the CD. She thanks me, crawls over to where her stereo is, and pops the disc in. I get up. She presses ‘play,’ I give her a goodbye salute, and as the room fills with the sound of pulsing keyboards, a skitter-scatter electronic beat, and the plaintive, repetitive croon of a sampled female singer, I make my exit.
+,
+I remember the first time we talked about Subterannia. We were in Virra Mall, that hobbyist’s haven, walking through the dingy corridors of the video-game parlors on the third floor. Row upon row of grubby schoolboys and grubbier twentynothings, their faces lit by the crazily changing colors shed by the game screens. “Life among the morlocks,” she said. I laughed, a short laugh that ended as soon as I realized she wasn’t making a joke. We walked past more shops, more gaudy machines, more slack sweaty faces. The machines were screaming, roaring, cursing, making laserbeam-sounds and explosion-sounds.
+“In a way, there’s something wonderful about this,” she said.
+“What do you mean?” I asked.
+“This, I don’t know, this separation from reality. These people hunched in front of their virtual playgrounds. They know the rules, they know how to win, and they know exactly who’s to blame when they lose. And they don’t have to admit other people into their worlds unless they want to.”
+I didn’t know how to reply. The blaring sound effects were beginning to make me feel slightly dizzy. I tugged at her arm and we started walking towards the escalator. “They should rename this part of the mall. Call it Subterrania,” I said. From that day on, we used that word to refer to any area that was cut off, that lacked sufficient light or air, that felt like a dark world unto itself.
+,
+The next time I visit her, she’s curled up on the bed, reading a comic book. She looks up when I enter, says, “Hey,” and drags herself up to a sitting position on the bed’s edge.
+“Hello,” I say, pulling up a chair. “The dry season is over, you know. No more hot sun. You can come out now.”
+“I went out for a few minutes, last night.”
+“You did?”
+“Yeah. Walked around the neighborhood a bit. Saw a fishball vendor, an old lady, some dogs. There’s not much out there.”
+“Well, there’s a big concert at the Sunken Garden tomorrow night. You wanna go?”
+She shakes her head. “I can see it now. People packed together, lots of sweating and grabbing, lots of pot and cigarette smoke, and a ratio of five lousy bands to every single decent act.”
+“You used to like going to those concerts.”
+“I like this,” she says, gesturing around her.
+I make a sound that’s not quite a sigh. “Okay.”
+“Hey,” she says, with a reassuring tone to her voice, “Don’t worry about me. I’ve got everything. Food and shelter, reading material and a stereo. I’ve got an Internet connection. Occasional visits from friends like you. Everything important.”
+“Okay,” I say again, and then I don’t know what else to say. Half a minute or so of silence passes. “Oh,” I blurt, remembering something, “Here’s that book I was telling you about.” I reach into my bag.
+“Thanks,” she says, as she takes the book. I gesture towards the door, and tell her I have to be off. She nods, and I get up, and leave.
+She’s beginning to worry me.
+,
+
+
+
+
+Kaye and I used to gallivant around the metropolis during our spare time. (We had a lot of spare time then, being college students in courses that we considered fairly easy). We found many small Subterranias. There was the underpass at Lawton, with its graffiti, its snack and cigarette vendors, its distinctive smell. The unfinished top floor of our old high school’s Humanities building—we went up there once, during a reunion—it was a network of bare, unpainted classrooms, with metal rods and concrete blocks on the floor; that was Subterrania too, even though it was five stories up. And Kaye discovered one day, while waiting for a bus, that a crack in a wall, if you stay still and stare at it long enough, if you can somehow imagine yourself, feel yourself inside it, squeeze your mind into that space—that jagged gap can be Subterrania too.
+
+
+
+
+,
+
+
+
+
+Another visit. It’s been weeks and weeks since Kaye breathed the air outside, or saw the sun or moon, except on TV or through her blinds. I ask her why she doesn’t want to leave her room any more. Why her books and CDs and things have become more interesting than the sprawl of the world outside. They always were, she claims, she just hadn’t realized it before. “I love these things,” she said, “these stories, these songs—because even the worst of them, in their own way, are perfect. Better than a life of uncertainty. They have beginnings and endings. I get the world distilled, you know, in its purer form. Even news stories on CNN have lifespans. They don’t cover certain events forever. Everything begins and everything ends, and that’s wonderful. You know what’s going on when you read a book, when you listen to a song or look at a painting. Or even if you don’t know what’s going on, you know that there are underlying reasons for everything. All these things are perfect flawed worlds. This room is my perfect flawed world...” Once again: I don’t know what to say to her.
+,
+There are times these days, when I’m outside, crossing a busy street, or buying groceries, that I think of Kaye and her room and her world, of Subterrania, and I feel something like sadness, something like intense longing. These moments can hit me at almost any time. Sitting in my apartment, watching an inane sitcom on TV. Paying my bills. Arguing with a traffic cop who just wants a bribe. Sometimes, when I’m just waking up from a dream, I get confused; I don’t know which is which, which world is Kaye’s world and which world is my world, the world of traffic and noise and aggravation, and at these times, they seem more different and more alike than ever.
+,
+Months and months have passed. I can hardly remember what it was like before, when Kaye and I used to go out. “Why do you come here?” she asks. “Are you expecting something from me?” She has these sullen moods once in a while. At other times, she’s almost absurdly grateful to see me. She gives me a hug as if I’m her oldest oldest friend in the world—which I will be, if she keeps up this hibernation. But to silently answer her question, a perfectly valid question, a valid concern: I don’t expect anything, really. No more than this, anyway.
+,
+There are a number of ways our story could end. (It is our story now, I believe, not completely hers and not completely mine. Had I stopped visiting her, I would have been a mere blip on her radar, a cameo appearance in her life-movie. And perhaps, though not inevitably, vice versa. But distinctions have been blurred, lines have been crossed, and we’re in this together now. I think).
+1. There could be a fire. It doesn’t have to be a fire, really; any sort of disaster would do. I can imagine the heat, the sound, I see myself emerging from the flames, Kaye in my arms, her hands clasped behind my neck. I stride across their front yard as the house behind me crackles and sputters. As soon as I reach a spot that’s far away enough, I lay Kaye gently down on the grass. She coughs, takes one, two, three deep breaths, and then opens her wet eyes. We look at each other for a long time, for the first time, and her lips part slightly --
+2. She never leaves her room. I visit her day after day. Every time I visit her, I feel a little older, a little weaker; but she stays the same, young, immortal. Years pass. I’m an old man, with a cane, or a wheelchair. She’s still in her mid-twenties, her body is still lithe, unwrinkled. I bring her books, music, magazines, myself, day after day after day, until my heart spasms itself into stopping. I fall with a thud on her carpeted floor, in her air-conditioned, undisturbed room.
+3. She changes. It’s slow at first; her skin seems paler, clammier. After a few years her eyes seem strange, like her pupils are smaller, but it’s hard to tell what’s happening because of the dimness of her room. Slowly her fingers and toes grow sucker-like tips, the better to manipulate her appliances and reading materials with. Her head starts to change shape, it becomes longer, flatter. She starts moving around on all fours. One day I enter her room to find something that isn’t recognizably Kaye at all, or even recognizably human. It looks like a giant albino mole, hairless and exuding a sickly-sweet smell. It looks at me, then looks away.
+4. My last visit. She asks me what I’ve brought her. I reach into my bag and pull out a small, dull-black gun. We look at each other and there are no questions.
+5. And so on.
+How many times have I visited her now? How many days has she spent in this room? I’ve lost count of both values. This is another day, another visit.
+I step into the room. She’s curled up on the carpeted floor, and for a brief dizzy moment, I think she might be dead, but she’s not; I notice the rise and fall of her ribcage, the gentle sound of her breathing. Her stereo is playing something that sounds like pygmies chanting. It is oddly soothing.
+“Kaye,” I say, more to hear the sound of her name as a kind of counterpoint to the chants than out of any need for a reply. She makes a small kind of hrmm? sound in return but doesn’t budge. She’s wearing an old tank top and loose floral pajama bottoms, having long ago ceased seriously caring about her appearance in front of me. From where I’m standing, I can see her shoulder blades jutting out, and the first bumps of her spinal column.
+“Turn off the lamp, please,” she says. “But don’t leave me.”
+I turn off the lamp. All is blackness. I kneel down, then settle into a fetal position. I wonder where she is; I can’t see a thing. All of a sudden, I feel her breath on my face. She’s right in front of me. We lie there together, not touching, not speaking. The sound of chanting fills me, fills my heart; it’s the only sound in the world. Slowly, her face seems to form before mine. I can make out the slight curves of her cheekbones, her forehead, her eyes. The thought crosses my mind: it should be impossible to see anything in darkness this total. Anything at all.
+Synopsis
+
+“Subterrania” follows the quiet, drifting relationship between the narrator and Kaye, a young woman who gradually retreats into an enclosed, artificial world inside her room. The story opens with the narrator visiting Kaye in her dim, enclosed space, a room she half-jokingly calls “Subterrania.” Inside, time feels suspended. The room is filled with books, comics, electronics, and constant media consumption. Kaye is absorbed in a Japanese animated film, and the narrator observes her more than he speaks. Their interaction is minimal, shaped more by shared silence than conversation.
+
+As the narrative unfolds, it becomes clear that Kaye’s withdrawal from the outside world is not sudden but gradual. She begins to prefer her room over the outside city, rejecting social events, concerts, and even casual walks. She justifies her isolation by describing her controlled environment as comforting and complete. For her, stories, music, and films provide structure and certainty that real life lacks. Everything in her room has beginnings and endings, unlike the unpredictability of the external world.
+
+The narrator, however, grows increasingly uneasy. He continues visiting her, bringing books and CDs, but he struggles to understand her increasing detachment. He remembers their earlier days together, when they explored the city and discovered their own metaphorical “Subterranias” in underpasses, malls, and abandoned spaces. What once was a shared concept of hidden worlds becomes, for Kaye, a permanent state of withdrawal.
+
+As time passes, Kaye becomes more isolated and physically diminished, while the narrator imagines multiple possible endings to their situation, ranging from rescue to total decay or transformation. These imagined scenarios reveal his anxiety and emotional entanglement. In the final moments, he sits with her in darkness, unable to fully separate reality from her enclosed world, suggesting that Subterrania is no longer just a room, but a psychological space they both inhabit.
